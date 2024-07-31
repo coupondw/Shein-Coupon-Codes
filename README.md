@@ -1,4 +1,4 @@
-## SHEIN COUPON CODES | Upto $50 off | Coupon codes Shein.com 
+# SHEIN COUPON CODES | Upto $50 off | Coupon codes Shein.com 
 
 Hey there, savvy shoppers! Let's talk about something that'll make your wallet happy - Shein coupon codes.
 If you're like me, you love a good deal. And Shein? They're practically giving stuff away when you know how to play the coupon game.
